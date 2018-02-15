@@ -2,7 +2,7 @@
 Freelancer Projects
 I cannot upload all files of projects because of the security issue,
 but I upload files here if it's simple pages.
-Thank you for visiting here :)
+Thank you for visiting here :).
 
 
 
